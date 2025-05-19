@@ -1,4 +1,4 @@
-# Hi, I'm @Marihub92 👋
+# Hi, I'm Shamarion 👋
 
 👀 I’m interested in using data to solve real-world problems and improve decision-making, especially in business and healthcare settings. I’m passionate about learning how to turn raw data into meaningful insights.
 
